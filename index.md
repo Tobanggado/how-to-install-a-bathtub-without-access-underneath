@@ -1,37 +1,24 @@
-## Welcome to GitHub Pages
+<h1>How To Install A Bathtub Without Access Underneath</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-install-a-bathtub-without-access-underneath/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">Bathtub Plumbing Entry Door   4 8 Out Of 5  Primarily Based On 8 Scores Eight Consumer Critiques</a></li><li><a href="#toc-1">Picture 1: Remove The Faucet, Tub Spout And Shower Head</a></li><li><a href="#toc-2">Eradicating The Old Tub</a></li><li><a href="#toc-3">Set Up Of Deck Mount Seize Bar</a></li><li><a href="#toc-4">Issues To Know Earlier Than Putting In A No</a></li><li><a href="#toc-5">My Tub Doesnt Have A P</a></li><li><a href="#toc-8">Jetted Tub Set Up Information</a></li><li><a href="#toc-9">New Tub With No Entry Need Help</a></li></ul></div>
+<p>If there is a ground under the bath, go there and hear for leaks and observe the ceiling for signs of water. If you have a bath sitting on a flooring over an space like a vented crawl area or unconditioned basement, this gap allows air to maneuver freely between inside and out. It's to accomodate the tub drain, which connects to the tub in two places and runs horizontally proper at concerning the level of the subfloor.</p>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+<p>Then, you'll have the ability to turn on the water and check for leaks. If you find any issues, contact a licensed plumber. To set up the equipped grab bar first find all the components wanted for set up. Ready the bolt assembly by first inserting a metal washer onto the bolt adopted by a rubber washer. Feed the bolt up via the tub shell and place one other rubber washer over the extruded bolt followed by the escutcheon.</p>
+<h2 id="toc-0">Bathtub Plumbing Access Door   Four 8 Out Of 5  Based On Eight Scores Eight User Critiques</h2>
+<p>Old style mud plaster partitions can be a bit more difficult . During a recent bathroom remodel, we had the opportunity to switch cast-iron tub with a model new acrylic bathtub. This article covers a fundamental overview of what the project entails, but product particulars may range among producers.</p>
+<ul><li>Measure to make sure your substitute tub will fit.</li><li>It is important to check that the Hydro and Air Pumps are functioning correctly before final in-wall installation to avoid pointless repairs or removal.</li><li>When he's not fixing issues, he'll be discovered within the health club lifting weights, in the kitchen baking, and just about in all places spending quality time along with his spouse and daughter. [newline]Plaster of Paris is another option similar to spray foam in its maneuverability.</li><li>Tub could be water examined and then easily removed to retailer in a safe place to avoid harm.</li><li>(A drain meeting with a plunger is proven.) Unscrew and remove the mounting bracket if there might be one.</li></ul>
+<p>Thus, sometimes I have solutions and sometime not. If so, you may not need to exchange the bathtub shoe gasket but if your tub is method old then a new shoe night be necessary. I placed a beneficiant bead of plumbers putty on the drain flange such that the putty sealed the complete black gasket. Our drain has a display on it that doesn’t have screws on it. Saw on the web that you just can’t take away this kind.</p>
+<h3 id="toc-1">Photo 1: Remove The Tap, Tub Spout And Bathe Head</h3>
+<p>Careful slicing will make it simpler to put in the new waste-and-overflow tube. The American Standard tub shown on this project has an put in dimension of 60 x 30 x 18 inches. The directions map out the situation for the drain, based on measurements from the encompassing partitions. Proper alignment of the plumbing connections with the house drain is essential. Rectangular tubs can feature rectangular, hourglass, or oval interiors, so give each bathtub you're considering a take a look at run if possible.</p>
+<div style='text-align:center'><iframe width='565' height='316' src='https://www.youtube.com/embed/Ql_c8Fa002E' frameborder='0' alt='how to install a bathtub without access underneath' allowfullscreen></iframe></div>
+<p>If you’ve moved your bathtub, likelihood is the majority of the work might be carried out underneath the subfloor. Let’s say you should transfer your clawfoot tub down the hallway to a the walk-in closet you’re now changing to a rest room. You have to add flooring helps to hold the load of the complete tub. Each additional flooring joist will value you $100-$300.</p>
+<h3 id="toc-2">Removing The Old Tub</h3>
+<p>No-Caulk shower drain merchandise are not intended for use in a tiled bathe ground. Oatey Brass and Plastic No-Caulk Shower Drains are designed for use with preformed shower stall bases. If the bathe base just isn't a preformed stall, check out different bathe drains obtainable by way of Oatey.com that may accommodate your specifications. Step-by-step directions for no-caulk bathe drain installations. This freestanding soaking bathtub with an extra deep bathing nicely is the latest addition to our Cadet® Suite.</p>
 
-### Markdown
+<p>Lay down in the bathtub to verify match and luxury level. Are there contoured head and armrests, slip-resistant flooring, and ample rims for holding toiletries and/or bath toys? Integrated seats, obtainable on some midrange bathtubs, introduce added convenience whereas tubs with a curved apron wall supply further bathing house. First, unscrew the tub drain and overflow from the P-trap beneath the bathtub. If your tub is acrylic or fiberglass, cut it into items with a jigsaw to make the elimination course of simpler. If you want to try to maintain the tub in a single piece, use a jigsaw to cut away the tub flange that’s nailed to the studs, then tip up the tub and pull it out.</p>
+<h2 id="toc-3">Installation Of Deck Mount Grab Bar</h2>
+<p>This is a very susceptible space for moisture penetration, so acquiring a proper waterproof seal the place the tiles meet these elements is crucial. Pipe seal to ensure that no moisture can enter the wall cavity the place the plumbing fixtures protrude into the shower area. We applied a bed of mortar to cowl all points of contact between the tub and the subfloor.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>Can you sink a bathtub?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>Also generally recognized as a 'drop-in tub', a sunken tub (similar to a sunken shower) may be sunk into the lavatory ground, or even a platform or deck which is particularly created for mentioned tub. Thus, the tub's outer profile is hidden with solely the rim exposed – type of like a swimming pool.</p></div>  </div></div>
+<p>Install the drain components to the bath following the manufacturer’s directions. See the installation manual for advised opening measurement and site dimensions. We used a “universal drain kit” with PVC parts. When framing the bathe encompass, plan for any cabinets or equipment by incorporating any needed blocking into the wall studs.</p>
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-install-a-bathtub-without-access-underneath/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<p>I do transforming, so most of mine is from what I even have learned through the years, advancing methods as I go. I prefer to deliver my vapor barrier all the means in which into the tub, slicing it off over the lip letting it hang under the cbu and over the bathtub lip. Tile will cover all of it and it has a free move into the bathtub. Many older tub surrounds are glued to drywall, as ours was.</p>
